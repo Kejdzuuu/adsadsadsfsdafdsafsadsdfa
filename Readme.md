@@ -1,0 +1,1 @@
+Czemu obra¿asz papie¿a?!
