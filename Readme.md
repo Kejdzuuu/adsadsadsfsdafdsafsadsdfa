@@ -1,1 +1,2 @@
-Czemu obra¿asz papie¿a?!
+Twitter cleanup after retrieving control from a hack.
+Unfavouriting all twits.
